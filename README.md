@@ -1,5 +1,5 @@
 接码平台提供大量国外号码，用于注册和接收验证码，例如ChatGPT、Google、WhatsApp、Amazon、Facebook、Instagram、Telegram、Tinder和Twitter等。
-![Uploading image.png…]()
+
 
 
 以下是一些推荐的靠谱接码平台，包括免费和付费服务。 
